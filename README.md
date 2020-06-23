@@ -1,4 +1,4 @@
-<p style="text-align:justify"><strong><a href="http://phongkhamthaiha.com/thuoc-pha-thai-mua-o-dau-102245.html">thuốc phá thai mua ở đâu</a></strong> an toàn được chọn lựa khá nhiều đặc biệt là một trong số các thắc mắc được các người yêu quan tâm. Bài viết này là những điều cần phải hết sức khuyên dành cho chị em khi mua thuốc bỏ thai.</p>
+<p style="text-align:justify"><strong>thuốc phá thai mua ở đâu</strong> an toàn được chọn lựa khá nhiều đặc biệt là một trong số các thắc mắc được các người yêu quan tâm. Bài viết này là những điều cần phải hết sức khuyên dành cho chị em khi mua thuốc bỏ thai.</p>
 
 <p style="text-align:justify">Cho dù biết là giảm thiểu <strong>phá thai bằng thuốc</strong> tại nhà, nhưng rất nhiều bạn gái vẫn tùy tiện mua thuốc kháng sinh phá thai đối với đòi hỏi tự chính mình xử trí đứa con một liệu pháp bí mật, kín đáo. Có bạn vì chưa biết mua kháng sinh phá thai ở đâu mà mua phải kháng sinh bỏ thai giả, kém tin cậy, nhận cái kết đắng cho mình, phá thai không thành quả cần thiết phải dẫn đến không thể có con lần sau.</p>
 
@@ -8,7 +8,7 @@
 
 <p style="text-align:center">thuốc kháng sinh phá thai MUA Ở ĐÂU AN TOÀN?</p>
 
-<p style="text-align:justify">Trong thời gian vừa qua, chuyên gia phòng khám Thái Hà nhận được khá nhiều câu hỏi có mối quan hệ đến <strong><a href="http://phongkhamthaiha.com/sau-khi-uong-thuoc-pha-thai-ra-mau-bao-lau-thi-cham-dut-102113.html">thuoc pha thai</a></strong>. Đi kèm với một vài lưu ý khi dùng kháng sinh phá thai thì mua <strong>thuốc kháng sinh phá thai ở đâu</strong> cũng được rất nhiều chị em băn khoăn.</p>
+<p style="text-align:justify">Trong thời gian vừa qua, chuyên gia phòng khám Thái Hà nhận được khá nhiều câu hỏi có mối quan hệ đến <strong>thuoc pha thai</strong>. Đi kèm với một vài lưu ý khi dùng kháng sinh phá thai thì mua <strong>thuốc kháng sinh phá thai ở đâu</strong> cũng được rất nhiều chị em băn khoăn.</p>
 
 <p style="text-align:justify">Theo quy định của Bộ y tế thì phá thai bằng kháng sinh chỉ được làm tại các <strong>địa chỉ bỏ thai an toàn</strong>, chủ yếu là các trung tâm y tế tuyến huyện hình thành hoặc các trung tâm y tế được cấp phép. Như vậy, thuốc kháng sinh phá thai lưu hành tại các cơ sở y tế này mới uy tín, đáng chất lượng, có nguồn gốc đặc trưng, chịu sự khám bệnh, giám sát của các bộ phận có công dụng.</p>
 
